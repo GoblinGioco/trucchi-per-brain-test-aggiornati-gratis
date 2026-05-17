@@ -32,7 +32,7 @@ Utilizzare i **trucchi per Brain Test** significa riprendere in mano il controll
 </a>
 </h1>
 
-</div>>
+</div>
 
 ---
 
