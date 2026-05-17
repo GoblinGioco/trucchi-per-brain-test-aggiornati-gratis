@@ -26,17 +26,13 @@ Utilizzare i **trucchi per Brain Test** significa riprendere in mano il controll
 
 <div align="center">
 
-<h1>⬇️ ⬇️ ⬇️</h1>
-
 <h1>
-<a href="https://paginadownload.netlify.app/">
-🚀 CLICCA QUI PER SCARICARE I TRUCCHI 🚀
+<a href="https://shr.pn/goblingioco">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
 </a>
 </h1>
 
-<h1>⬆️ ⬆️ ⬆️</h1>
-
-</div>
+</div>>
 
 ---
 
@@ -90,14 +86,10 @@ Abbandona la frustrazione di rimanere a corto di aiuti e non perdere altro tempo
 
 <div align="center">
 
-<h1>⬇️ ⬇️ ⬇️</h1>
-
 <h1>
-<a href="https://paginadownload.netlify.app/">
-🚀 CLICCA QUI PER SCARICARE I TRUCCHI 🚀
+<a href="https://shr.pn/goblingioco">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
 </a>
 </h1>
-
-<h1>⬆️ ⬆️ ⬆️</h1>
 
 </div>
